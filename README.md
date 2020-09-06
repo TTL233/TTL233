@@ -14,5 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- 我喜欢这啦啦啦啦啦
-- 咕咕咕咕咕咕过过
+-你们好呀，我是福州大学2018级的学生
